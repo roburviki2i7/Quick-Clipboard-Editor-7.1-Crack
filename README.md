@@ -1,0 +1,1 @@
+# Quick-Clipboard-Editor-7.1-Crack
